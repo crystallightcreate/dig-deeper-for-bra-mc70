@@ -1,4 +1,4 @@
-# 
+# Experience dig deeper for brainrots like never before with dig deeper for brainrots Scripts underground, the #1 Script. Includes speed and auto-sell
 
 
 
